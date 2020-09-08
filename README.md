@@ -1,1 +1,0 @@
-# dirhamtriyadi27
